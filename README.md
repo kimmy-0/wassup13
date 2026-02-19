@@ -1,3 +1,7 @@
 wassup13
 
-~~renamemememememememem~~
+>교육을 위해 해야할 일
+
+~~입실체크~~
+- 수업 열심히 듣기
+- 퇴실체크
